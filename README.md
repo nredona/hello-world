@@ -3,4 +3,4 @@ My first repository
 
 Hola, people! 
 
-I like to code. and saving the world, in a cool as a penguin kind of way.  
+I'm schoolgirl distinguished, and cool as a penguin. I like coding. and saving the world.
